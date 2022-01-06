@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @coreywanderful
-- 👀 I’m interested in traveling, exploring, and seeing everything the world has to offer
+- 👀 I’m interested in traveling, exploring, and enjoying the beautiful things the world has to offer
 - 🍅 I'm on a mission to find the world's best bruschetta
 - 🌱 I’m currently learning Greek, boxing, gardening, and the art of the tiki drink 🍹
 - 💞️ I’m looking to collaborate on anything. Team work makes the dream work! 
