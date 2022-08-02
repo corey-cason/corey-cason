@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @coreywanderful
-- 👀 I’m interested in reading, traveling, and exploring our beautiful planet 🌎
+- 🌎 I’m interested in reading, traveling, and exploring our amazing planet
 - 🍅 I'm on a mission to find the world's best bruschetta
 - 💞️ I’m happy to collaborate on all the things. Team work makes the dream work! 
 - 📫 How to reach me - Slack, e-mail, text, telephone, and LinkedIn 
